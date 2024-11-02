@@ -1,0 +1,1 @@
+- [@8:30 everyone codes faster when they stop using their mouse](https://youtu.be/WkT8ZC4ncX8?t=510)
